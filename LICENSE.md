@@ -1,4 +1,4 @@
-
+premium IPVanish Addon | camouflage-mode + dedicated-IP is the best IPVanish addon, featuring camouflage-mode and dedicated-IP. Secure, fast, and optimized for privacy.
 
 
 
